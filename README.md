@@ -19,7 +19,7 @@ I speak also 🇪🇸 a bit.
 - 💬 Ask me about anything and I will try my best to answer all your questions
 - 📫 How to reach me? by mail
 - ⚡ Fun fact: I am adopted; I am Swiss but orginally from El Salvador, South America.
-In may 2019, I did a road trip in Central of America and visited the orphanage where I was before being adopted. I know how lucky I am to be here now and i am forever grateful for this.
+In may 2019, I did a road trip in Central of America and visited the orphanage I stayed. I know how lucky I am to be here now and i am forever grateful for this. Never take and anything for granted and appreciate what you have.
 - I love 💃🏽 and 🌎
 
 My fav motto "If it doesn't challenge you, it won't change you" 💪🏽 
