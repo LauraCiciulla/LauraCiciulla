@@ -20,5 +20,5 @@ I speak also 🇪🇸 a bit.
 In may 2019, I did a road trip in Central of America and visited the orphanage where I was before being adopted. I know how lucky I am to be here now and i am forever grateful for this.
 - I love 💃🏽 and 🌎
 
-My fav motto > "If it doesn't challenge you, it won't change you"
-
+My fav motto **"If it doesn't challenge you, it won't change you"
+**
