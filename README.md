@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+<img src="https://media.giphy.com/media/VTtANKl0beDFQRLDTh/giphy.gif" width="50%">
+
 Hello my name is Laura, I have been living in Dubai for 6 years, a vibrant and fast moving city.
 It's amazing to see all the different culture and nationalities living together in harmony.
 Living and working here taught me to understand the culture behind every businesses.
