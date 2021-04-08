@@ -1,4 +1,4 @@
-### Hi there 👋
+### My mvp app devloped in 8 days during my school project ☟
 
 <img src="https://media.giphy.com/media/ILAxwYG8V4h4fwrwv7/giphy-downsized-large.gif" width="100%">
 
