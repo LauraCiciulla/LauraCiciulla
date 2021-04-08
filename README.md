@@ -10,7 +10,7 @@ I worked in event management and have also experience in Digital Marketing, I al
 
 My biggest project was for "Oracle Open World Middle East" in 2019 where I had to oversee a team of more than 100 staffs, developed an API with our Software team, do some penetration testing in our system and ensure to comply to all the security levels requested by the client and communicate with the Chief of security based in US.
 
-I a native french speaker 🇫🇷 
+I am a native french speaker 🇫🇷 
 I speak 🏴󠁧󠁢󠁥󠁮󠁧󠁿 fluently
 I speak also 🇪🇸 a bit.
 
