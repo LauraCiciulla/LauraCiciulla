@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<img src="https://media.giphy.com/media/VTtANKl0beDFQRLDTh/giphy.gif" width="50%">
+<img src="https://media.giphy.com/media/ILAxwYG8V4h4fwrwv7/giphy-downsized-large.gif" width="100%">
 
 I have been living in Dubai for 6 years, a vibrant and fast moving city.
 
