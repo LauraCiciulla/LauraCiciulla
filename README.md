@@ -1,6 +1,6 @@
 ### My mvp app devloped in 8 days during my school project ☟
 
-<img src="https://media.giphy.com/media/ILAxwYG8V4h4fwrwv7/giphy-downsized-large.gif" width="100%">
+<iframe src="https://giphy.com/embed/ILAxwYG8V4h4fwrwv7" width="480" height="233" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/ILAxwYG8V4h4fwrwv7">via GIPHY</a></p>
 
 I have been living in Dubai for 6 years, a vibrant and fast moving city.
 
